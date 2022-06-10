@@ -1,2 +1,2 @@
 # ayang20thbday
-birthday wishes for my dear girlfriend
+a simple birthday wishes for my dear gf
